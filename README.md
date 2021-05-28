@@ -1,1 +1,0 @@
-# Sall_Miguy_-_El-Hadji_Yaya_Mbaye_ISEP_2021_TME2
